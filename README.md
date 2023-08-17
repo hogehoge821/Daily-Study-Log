@@ -1,1 +1,1 @@
-# Daily-Study-Log
+# Daily-Study-Log 2023-08~
